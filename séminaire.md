@@ -1,4 +1,4 @@
-La moisson abonde: [lien](https://www.youtube.com/watch?v=lwVJwQHUrjc)  
+La moisson abonde: [lien](https://www.youtube.com/watch?v=lwVJwQHUrjc) [paroles](La_moisson_abonde)
     
 Il fera [lien](https://www.youtube.com/watch?v=HlERVocf3_M)    
     
