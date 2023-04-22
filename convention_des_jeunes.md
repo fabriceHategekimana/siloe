@@ -19,16 +19,8 @@
 - Que tout les autres noms [lien](https://www.youtube.com/watch?v=Qk0VtrJjicM)  
 
 ---------------------
-
-## Partie de Britney en Re#  
-
-- Ouvre les écluses des cieux [lien](https://m.youtube.com/watch?v=OjO68w0G_Dw&pp=ygUcb3V2cmUgbGVzIMOpY2x1c2VzIGRlcyBjaWV1eA%3D%3D)   
-- Sa gloire est là, sa main nous touche [lien](https://m.youtube.com/watch?v=4yJl1qzgJfc&pp=ygUkc2EgZ2xvaXJlIGVzdCBsYSBzYSBtYWluIG5vdXMgdG91Y2hl)   
-- Eliyah 
-
----------------------
  
-## Partie D'Ingrid en Sol#: 
+## Partie d'Ingrid en Sol#: 
 
 - Reçois de moi/ Reçois l'adoration [lien](https://m.youtube.com/watch?v=Dh-LzU3cruk&pp=ygUXcmVjb2lzIGwnYWRvcmF0aW9uIGdhZWw%3D)   
 Minutes à écouter:  
@@ -36,6 +28,15 @@ Minutes à écouter:
 07:05-09:42 (reçois l'adoration)   
 
 - Emmanuel [lien](https://www.youtube.com/watch?v=84Bq-Yw6UxU)
+
+---------------------
+
+## Partie de Britney en Re#  
+
+- Ouvre les écluses des cieux [lien](https://m.youtube.com/watch?v=OjO68w0G_Dw&pp=ygUcb3V2cmUgbGVzIMOpY2x1c2VzIGRlcyBjaWV1eA%3D%3D)   
+- Sa gloire est là, sa main nous touche [lien](https://m.youtube.com/watch?v=4yJl1qzgJfc&pp=ygUkc2EgZ2xvaXJlIGVzdCBsYSBzYSBtYWluIG5vdXMgdG91Y2hl)   
+- Eliyah 
+
 
 ---------------------
 
