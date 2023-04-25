@@ -1,19 +1,19 @@
-Dimanche 16 avril 2023
+Dimanche 30 avril 2023
 
 # ENTREE
-Même si le monde Ré
+Il a reçut le nom
+Alleluia hosana
 
 # ADORATION
-Oh ce nom est si merveilleux Ré
-Tant que tu donnes un chant Ré
-Jésus tu es élevé Ré
-
-Le nom de Jésus Si
-Je ramène mon coeur au trône Si
+Oui je le vois
+Rien n'est égal
+Mon coeur me pousse à dire
+Gloire à l'agneau
+Tu es Yahwe
 
 # OFFRANDES
-La joie du Seigneur Ré 
-Venez voir ce que Dieu a fait Ré
+Dieu va faire encore
+Je chanterai
 
 # CLOTURE
-Tu es alpha Ré
+Reçois ma louange
