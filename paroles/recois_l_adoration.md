@@ -1,0 +1,16 @@
+# Reçois l'adoration
+
+Reçois l'adoration
+Tu es le roi de Gloire
+Notre victoire
+Digne du Seigneur Emmanuel
+
+Dieu de lumière élevé dans les cieux,
+Rempli de grâce et de paix
+Environné de louange et de feu,
+Gardien de l’éternité
+
+Pourquoi quitter ce palais de bonheur
+Pour un sentier de misère,
+Par quel amour les chemins de ton cœur
+Ont su trouver nos prières
