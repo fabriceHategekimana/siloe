@@ -1,19 +1,20 @@
-Dimanche 30 avril 2023
+Dimanche 7 mai 2023
 
 # ENTREE
-Il a reçut le nom  
-Alleluia hosana  
+Nous venons dans ta maison  
+Jésus nous sommes là  
 
 # ADORATION
-Oui je le vois  
-Rien n'est égal  
-Mon coeur me pousse à dire  
-Gloire à l'agneau  
-Tu es Yahwe  
+Que tout genoux flechissent  
+De gloire en gloire  
+Fait-moi monter
+Que ta présence en moi  
+Que tout les autres noms  
 
 # OFFRANDES
-Dieu va faire encore  
-Je chanterai  
+Il est le Dieu des miracles  
 
 # CLOTURE
-Reçois ma louange  
+Tu es alpha et oméga  
+
+
