@@ -5,6 +5,10 @@ Jésus le roi des rois
 Que puis-je te donner  
   
 # Adoration  
+
+Yaweh biso tobelemi
+Le nom de Jésus
+
 Je veux être comme Jésus  
 Que ta présence en moi  
 Que tout les autres noms disparraissent  
