@@ -1,12 +1,12 @@
-# Entrée  
-Alleluia amen  
+# Entrée  Do
 Pour cet immense bonheur  
 Jésus le roi des rois  
 Que puis-je te donner  
   
-# Adoration  
+# Adoration Ré
 
-Yaweh biso tobelemi
+Yaweh biso tobelemi 
+Mon âme soupir
 Le nom de Jésus
 
 Je veux être comme Jésus  
@@ -20,4 +20,3 @@ Moi j'ai trouvé
   
 # Clôture  
 Nous te disons merci Seigneur  
-
