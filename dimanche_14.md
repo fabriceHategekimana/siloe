@@ -1,20 +1,27 @@
-# Entrée  
-Je parlerai de ta bonté  
-  
+# Entrée  (Ré ou Ré#)  
+Même si le monde  
+Kumama  
+    
 # Adoration   
-Mon coeur me pousse à dire  
-Gloire à l'agneau  
-Dieu est fidèle  
-Sans pareil  
+## Do#  
+Zua nkembo [lien](https://m.youtube.com/watch?v=6eTIN5uObxQ)  
   
-# Offrandes  
+## La#  
+Mon coeur me pousse à dire    
+Gloire à l'agneau    
+Yahwe (Henri papa)  
+Alleluia hosanna  
   
-Ne me cherchez plus là bas  
-Il va me prendre   
-La nouvelle Jerusalem  
-Là haut  
-Rabbi  
-  
-# Clôture  
-Dieu est fidèle   
-
+# Louange (Ré ou Mi)  
+Bonganga y Nzambe [lien](https://m.youtube.com/watch?v=qB7OljQ2NsA&pp=ygUSYm9uZ2FuZ2EgbmEgbnphbWJl)  
+    
+# Offrandes    
+    
+Ne me cherchez plus là bas    
+Il va me prendre     
+La nouvelle Jerusalem    
+Là haut    
+Rabbi    
+    
+# Clôture    
+Dieu est fidèle     
