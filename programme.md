@@ -1,20 +1,19 @@
-Dimanche 7 mai 2023
+Dimanche 21 mai 2022
 
 # ENTREE
-Nous venons dans ta maison  
-Jésus nous sommes là  
+Il est vivant 
 
-# ADORATION
-Que tout genoux flechissent  
-De gloire en gloire  
-Fait-moi monter
-Que ta présence en moi  
-Que tout les autres noms  
+# ADORATION (Re)
 
-# OFFRANDES
-Il est le Dieu des miracles  
+Je ramène mon coeur au trône  
+Ce nom si merveilleux  
+Je laisse parler mon coeur   
+Tant que tu donnes un chant   
+Sa main nous touche   
 
-# CLOTURE
-Tu es alpha et oméga  
+# OFFRANDES (Re)
+Je veux me réjouir   
 
+# CLOTURE (La)
+Même si les océans  
 
