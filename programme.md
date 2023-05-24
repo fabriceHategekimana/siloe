@@ -1,19 +1,19 @@
-Dimanche 21 mai 2022
+Dimanche 21 mai 2022  
 
 # ENTREE
-Il est vivant 
+Esprit descend sur nous
 
 # ADORATION (Re)
+Abrites-moi  
+Alors à qui pourrai-je te comparer  
+Ce nom est si merveille  
 
-Je ramène mon coeur au trône  
-Ce nom si merveilleux  
-Je laisse parler mon coeur   
-Tant que tu donnes un chant   
-Sa main nous touche   
+Ton amour, ta puissance  
+Le Saint-Esprit est parmi nous  
+Il est parmi nous  
 
 # OFFRANDES (Re)
-Je veux me réjouir   
+Je veux me réjouir     
 
 # CLOTURE (La)
-Même si les océans  
-
+Je veux m'enraciner en toi  
