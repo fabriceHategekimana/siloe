@@ -1,19 +1,24 @@
-Dimanche 21 mai 2022  
+Dimanche 4 juin 2022  
 
 # ENTREE
-Esprit descend sur nous
 
-# ADORATION (Re)
-Abrites-moi  
-Alors à qui pourrai-je te comparer  
-Ce nom est si merveille  
+Il est le même  
+Il est vivant Jésus  
 
-Ton amour, ta puissance  
-Le Saint-Esprit est parmi nous  
-Il est parmi nous  
+# ADORATION
 
-# OFFRANDES (Re)
-Je veux me réjouir     
+Je viens dans ta présence  
+Je reconnais  
+Jésus le prince glorieux  
 
-# CLOTURE (La)
+Attire-moi à toi  
+Au ciel nous chanterons  
+Dieu tout puissant  
+
+# OFFRANDES
+
+Il est bon de louer Dieu  
+Je chanterai de tout coeur  
+
+# CLOTURE
 Je veux m'enraciner en toi  
