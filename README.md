@@ -1,11 +1,20 @@
-# Programmes siloé
-  
-[programme](programme)  
+Dimanche 18 juin 2023
 
-# NOUVEAUTÉS
+# ENTREE
+Jésus le roi des roi
+Oh mon Dieu
 
-## Venez voir (de 3:51 à 7:23)  
-[lien](https://www.youtube.com/watch?v=piWo6eHqpXY)   
+# ADORATION
+Reçois de moi
+Reçois l'adoration
 
-## Jésus nous t'élevons plus haut (de 6:49 à 10:24)
-[lien](https://www.youtube.com/watch?v=dPSYTOJh9Dc&t=1443s)  
+Oui je le vois
+Mon coeur me pousse à dire
+Dieu est fidèle
+
+# OFFRANDE
+Il est bon de louer Dieu
+Je chanterai
+
+# CLÔTURE
+Alleluia amen

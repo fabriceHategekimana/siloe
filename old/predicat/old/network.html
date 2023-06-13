@@ -1,0 +1,80 @@
+<html>
+<head>
+<link rel="stylesheet" href="https://cdnjs.cloudflare.com/ajax/libs/vis/4.16.1/vis.css" type="text/css" />
+<script type="text/javascript" src="https://cdnjs.cloudflare.com/ajax/libs/vis/4.16.1/vis-network.min.js"> </script>
+<center>
+<h1></h1>
+</center>
+
+<!-- <link rel="stylesheet" href="../node_modules/vis/dist/vis.min.css" type="text/css" />
+<script type="text/javascript" src="../node_modules/vis/dist/vis.js"> </script>-->
+
+<style type="text/css">
+
+        #mynetwork {
+            width: 100%;
+            height: 100%;
+            background-color: #333333;
+            border: 1px solid lightgray;
+            position: relative;
+            float: left;
+        }
+
+        
+
+        
+
+        
+</style>
+
+</head>
+
+<body>
+<div id = "mynetwork"></div>
+
+
+<script type="text/javascript">
+
+    // initialize global variables.
+    var edges;
+    var nodes;
+    var network; 
+    var container;
+    var options, data;
+
+    
+    // This method is responsible for drawing the graph, returns the drawn network
+    function drawGraph() {
+        var container = document.getElementById('mynetwork');
+        
+        
+
+        // parsing and collecting nodes and edges from the python
+        nodes = new vis.DataSet([{"font": {"color": "white"}, "id": "Dans_les_parvis", "image": "https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fthumb%2Fd%2Fd5%2FRond_bleu_ciel.png%2F120px-Rond_bleu_ciel.png\u0026f=1\u0026nofb=1", "label": "Dans_les_parvis", "shape": "image"}, {"font": {"color": "white"}, "id": "Je_veux_exprimer", "image": "https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fthumb%2Fd%2Fd5%2FRond_bleu_ciel.png%2F120px-Rond_bleu_ciel.png\u0026f=1\u0026nofb=1", "label": "Je_veux_exprimer", "shape": "image"}, {"font": {"color": "white"}, "id": "Le_nom_de_J\u00e9sus", "image": "https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fthumb%2Fd%2Fd5%2FRond_bleu_ciel.png%2F120px-Rond_bleu_ciel.png\u0026f=1\u0026nofb=1", "label": "Le_nom_de_J\u00e9sus", "shape": "image"}, {"font": {"color": "white"}, "id": "Emmanuel", "image": "https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fthumb%2Fd%2Fd5%2FRond_bleu_ciel.png%2F120px-Rond_bleu_ciel.png\u0026f=1\u0026nofb=1", "label": "Emmanuel", "shape": "image"}, {"font": {"color": "white"}, "id": "Divine_Amour", "image": "https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fupload.wikimedia.org%2Fwikipedia%2Fcommons%2Fthumb%2Fd%2Fd5%2FRond_bleu_ciel.png%2F120px-Rond_bleu_ciel.png\u0026f=1\u0026nofb=1", "label": "Divine_Amour", "shape": "image"}]);
+        edges = new vis.DataSet([{"arrows": "to", "color": "#306843", "from": "Emmanuel", "label": "suivant", "to": "Emmanuel"}, {"arrows": "to", "color": "#306843", "from": "Emmanuel", "label": "suivant", "to": "Emmanuel"}, {"arrows": "to", "color": "#306843", "from": "Je_veux_exprimer", "label": "suivant", "to": "Le_nom_de_J\u00e9sus"}, {"arrows": "to", "color": "#306843", "from": "Le_nom_de_J\u00e9sus", "label": "suivant", "to": "Je_veux_exprimer"}, {"arrows": "to", "color": "#306843", "from": "Le_nom_de_J\u00e9sus", "label": "suivant", "to": "Je_veux_exprimer"}, {"arrows": "to", "color": "#306843", "from": "Je_veux_exprimer", "label": "suivant", "to": "Le_nom_de_J\u00e9sus"}, {"arrows": "to", "color": "#306843", "from": "Dans_les_parvis", "label": "suivant", "to": "Divine_Amour"}, {"arrows": "to", "color": "#306843", "from": "Divine_Amour", "label": "suivant", "to": "Dans_les_parvis"}, {"arrows": "to", "color": "#306843", "from": "Divine_Amour", "label": "suivant", "to": "Dans_les_parvis"}, {"arrows": "to", "color": "#306843", "from": "Dans_les_parvis", "label": "suivant", "to": "Divine_Amour"}]);
+
+        // adding nodes and edges to the graph
+        data = {nodes: nodes, edges: edges};
+
+        var options = {"manipulation": {"enabled": true}, "physics": {"enabled": false}, "interaction": {"multiselect": true, "navigationButtons": true}, "configure": {"enabled": true, "filter": "layout,physics", "showButton": true}, "edges": {"smooth": {"enabled": false}}};
+        
+        
+
+        
+
+        network = new vis.Network(container, data, options);
+	 
+        
+
+
+        
+
+        return network;
+
+    }
+
+    drawGraph();
+
+</script>
+</body>
+</html>
