@@ -1,20 +1,24 @@
-Dimanche 2 juillet 2023  
+Dimanche 9 juillet 2023    
   
 # ENTREE  
-Même si le monde  
+   
+Alleluia Gloire à Dieu  
+Il est le même  
+Il est vivant Jésus  
   
 # ADORATION  
-Jésus tu es le plus beau nom de tous  
-Abrites-moi  
-Ni par force   
-Roi de mon Salut  
-Yaya (Jésus nous sommes là pour t'adorer)  
+   
+Gloire et louange alleluia  
+Rien n'est égal  
   
-# LOUANGE  
-Nous te louons  
+Dieu de gloire  
+Tu es dignes de gloire  
+Seigneur fait moi voir ta gloire  
   
 # OFFRANDES  
-Je sais qui je suis  
+Rabbi ne change pas  
+Là haut  
   
 # CLOTURE  
-Tu es alpha  
+Gloire  
+  
