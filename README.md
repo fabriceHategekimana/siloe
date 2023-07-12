@@ -1,24 +1,19 @@
-Dimanche 9 juillet 2023    
+Dimanche 16 juillet 2021  
   
 # ENTREE  
-   
-Alleluia Gloire à Dieu  
-Il est le même  
-Il est vivant Jésus  
+Exaltez l'eternel  
   
 # ADORATION  
-   
-Gloire et louange alleluia  
-Rien n'est égal  
-  
-Dieu de gloire  
 Tu es dignes de gloire  
-Seigneur fait moi voir ta gloire  
+Oui je le vois   
+Jésus nous élevons ton nom plus haut  
+Ouvre les écluses des cieux  
+Sa main nous touche  
   
 # OFFRANDES  
-Rabbi ne change pas  
-Là haut  
+Eh eh eh, mon Dieu mon roi  
+La nouvelle Jérusalem  
+Moi j'ai trouvé  
   
 # CLOTURE  
-Gloire  
-  
+L'Eternel est bon  
