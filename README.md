@@ -1,19 +1,18 @@
-Dimanche 16 juillet 2021  
+Dimanche 23 juillet 2023  
   
 # ENTREE  
-Exaltez l'eternel  
+Comment ne pas te louer  
   
 # ADORATION  
-Tu es dignes de gloire  
-Oui je le vois   
-Jésus nous élevons ton nom plus haut  
-Ouvre les écluses des cieux  
-Sa main nous touche  
+Jésus le prince glorieux  
+Attire-moi à toi  
+Je reconnais  
+Je laisse parler mon coeur  
+El Shaddai  
   
 # OFFRANDES  
-Eh eh eh, mon Dieu mon roi  
-La nouvelle Jérusalem  
-Moi j'ai trouvé  
+Dieu n'échoue jamais  
+Je ne mourrai pas  
   
 # CLOTURE  
-L'Eternel est bon  
+Même si les océans  
