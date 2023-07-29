@@ -1,18 +1,22 @@
-Dimanche 23 juillet 2023  
+Dimanche 30 juillet 2023  
   
 # ENTREE  
-Comment ne pas te louer  
+
+On m'a dit Seigneur
+Jehova tu es élevé
+Il est le même Jésus
+Alleluia Hosanna
   
 # ADORATION  
-Jésus le prince glorieux  
-Attire-moi à toi  
-Je reconnais  
-Je laisse parler mon coeur  
-El Shaddai  
+Mon coeur me pousse à dire
+De gloire en gloire
+Fais-moi monter
+Que tout les autres noms
   
 # OFFRANDES  
-Dieu n'échoue jamais  
-Je ne mourrai pas  
+ La joie du Seigneur
+ Moi j'ai trouvé
+ Commando
   
 # CLOTURE  
-Même si les océans  
+Tu es assis sur le trône
