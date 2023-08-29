@@ -17,4 +17,3 @@ Tant que tu donne un chant
 Là haut mon nom est inscrit
 
 # CLOTURE
-
