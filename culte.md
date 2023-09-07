@@ -1,22 +1,20 @@
-Dimanche 3 Septembre 2023
+### Jeudi 7 septembre (10)
 
-Thème: Dieu est vivant
-  
+Dimanche 10 septembre 2023  
+
 # ENTREE
-Il est vivant en Jésus 
-Alleluia Hosanna
+On m'a dit Seigneur  
+Jehova eh  
 
 # ADORATION
-Tant que tu donne un chant
-Je laisse parler mon coeur
-Sa main nous touche
-Père nous t'adorons (tu es le Dieu de ma vie)
-Jésus nous somme là pour t'adorer
+Tout l'honneur  
+À jamais tu seras  
+Reçois de moi  
+Reçois l'adoration  
+Emmanuel  
 
 # OFFRANDES
-Ne me cherchez plus là-bas
-Là haut mon nom est inscrit
-Rabbi ne change pas
+Brûle en moi  
 
 # CLOTURE
-
+Alleluia amen  
