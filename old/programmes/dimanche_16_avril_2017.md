@@ -17,6 +17,6 @@ Attire-moi à toi Ré#
 Je suis qui je sui Ré#
  
 # OFFRANDES
-Medley (Nous avons Jéus)
+Medley (Nous avons Jésus)
 
 # CLOTURE
