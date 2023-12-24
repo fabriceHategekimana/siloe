@@ -1,9 +1,9 @@
 ## Dimanche 24 décembre 2023  
 
 # ENTREE
-Alleluia alleluia
-Alleluia amen
-Eh eh mon Dieu mon Roi
+Alleluia alleluia  
+Alleluia amen  
+Eh eh mon Dieu mon Roi  
 
 # ADORATION
 Tout l'honneur  
