@@ -1,8 +1,9 @@
 ## Dimanche 24 décembre 2023  
 
 # ENTREE
-On m'a dit Seigneur  
-Jehova eh  
+Alleluia alleluia
+Alleluia amen
+Eh eh mon Dieu mon Roi
 
 # ADORATION
 Tout l'honneur  
@@ -14,6 +15,8 @@ Emmanuel
 # OFFRANDES
 Moi je ne souffrirai jamais
 Brûle en moi  
+Nkembo alleluia
+Oh na Yahwe
 
 # CLOTURE
 Alleluia amen  
