@@ -1,24 +1,20 @@
-Dimanche 4 juin 2022  
-
-# ENTREE
-
-Il est le même  
-Il est vivant Jésus  
-
-# ADORATION
-
-Je viens dans ta présence  
-Je reconnais  
-Jésus le prince glorieux  
-
-Attire-moi à toi  
-Au ciel nous chanterons  
-Dieu tout puissant  
-
-# OFFRANDES
-
-Il est bon de louer Dieu  
-Je chanterai de tout coeur  
-
-# CLOTURE
+Dimanche 26 mai 2024  
+  
+## ENTRÉE  
 Je veux m'enraciner en toi  
+Dans mon parcours sur la terre  
+Ne me laisse pas tomber  
+  
+## ADORATION  
+Plus près de toi seigneur  
+Seigneur prend soin de moi  
+Abrite-moi  
+Jésus tu as les parole de la vie  
+  
+## OFFRANDES  
+Moi je ne souffrirai jamais  
+C'est pourquoi  
+Commando  
+  
+## CLÔTURE  
+Merci merci Jésus  
