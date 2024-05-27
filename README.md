@@ -1,20 +1,18 @@
-Dimanche 26 mai 2024  
+Dimanche 26 mai 2024    
   
-## ENTRÉE  
-Je veux m'enraciner en toi  
-Dans mon parcours sur la terre  
-Ne me laisse pas tomber  
+À apprendre:  
+Ami fidèle [lien](https://youtu.be/WSv37PZUklE?si=zFPXlvN8xFLm7Mn1)  
+    
+## ENTRÉE    
   
-## ADORATION  
-Plus près de toi seigneur  
-Seigneur prend soin de moi  
-Abrite-moi  
-Jésus tu as les parole de la vie  
-  
-## OFFRANDES  
-Moi je ne souffrirai jamais  
-C'est pourquoi  
-Commando  
-  
-## CLÔTURE  
-Merci merci Jésus  
+    
+## ADORATION    
+Abba papa  
+Que tes vives eaux  
+Père nous t'adorons  
+    
+## OFFRANDES    
+Je veux me réjouir  
+    
+## CLÔTURE    
+Merci merci Jésus    
