@@ -1,21 +1,22 @@
 Dimanche 16 juin 2024    
   
 ## ENTRÉE    
-Je suis venu pour te louer  
-Je parlerai de ta bonté  
+Il a reçu le nom  
+Alleluia hosana  
+Pour cet immense bonheur  
+Jésus le roi des rois  
+Oh mon Dieu / Que puis-je te donner  
 
 ## ADORATION    
-Je viens dans ta présence  
-T'adorer  
-Ouvre les écluses  
-Je me livre totalement  
-
-(Oui je le vois)  
+Parfum  
+Tu es Yahwe  
+Shamma  
+Abrite-moi  
 
 ## OFFRANDES    
-Ayaya Jésus est bon  
-Jésus a marché sans bateau
-Oh na yahwe  
+Il est bon de louer Dieu  
+La nouvelle Jérusalem  
+Plus haut plus haut  
 
 ## CLÔTURE
-Même si les océans  
+Non non non jamais ne passera  
