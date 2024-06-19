@@ -1,4 +1,4 @@
-Dimanche 26 mai 2024  
+Dimanche 26 juin 2024  
   
 ## ENTRÉE  
 Je veux m'enraciner en toi  

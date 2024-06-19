@@ -1,4 +1,4 @@
-Dimanche 16 juin 2024    
+Dimanche 23 juin 2024    
   
 ## ENTRÉE    
 Il a reçu le nom  
