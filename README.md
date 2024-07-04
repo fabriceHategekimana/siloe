@@ -1,22 +1,22 @@
-Dimanche 23 juin 2024    
+Dimanche 23 juin 2024      
+    
+## ENTRÉE      
+Nous te disons merci Seigneur  
+Oh mon Dieu  
+Il est vivant  
+Alleluia Hosanna  
   
-## ENTRÉE    
-Il a reçu le nom  
-Alleluia hosana  
-Pour cet immense bonheur  
-Jésus le roi des rois  
-Oh mon Dieu / Que puis-je te donner  
-
-## ADORATION    
-Parfum  
-Tu es Yahwe  
+## ADORATION      
+Je ramène mon coeur au trône  
+Nous nous prosternons  
+Je viens dans ta présence  
+Comme une biche  
 Shamma  
-Abrite-moi  
-
-## OFFRANDES    
-Il est bon de louer Dieu  
-La nouvelle Jérusalem  
-Plus haut plus haut  
-
-## CLÔTURE
-Non non non jamais ne passera  
+  
+## OFFRANDES      
+Je veux me réjouir  
+Ensemble louons  
+Moi je ne souffrirai jamais  
+  
+## CLÔTURE  
+Ton nom est si merveilleux Jésus  
