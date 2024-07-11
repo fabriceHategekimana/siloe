@@ -1,22 +1,21 @@
-Dimanche 7 juillet 2024  
+Dimanche 14 juillet 2024  
       
 ## ENTRÉE        
-Nous te disons merci Seigneur    
-Oh mon Dieu    
-Il est vivant    
-Alleluia Hosanna    
+L'amour est une personne  
+Je veux m'enraciner  
+On m'a dit que tu guérissais  
     
 ## ADORATION        
-Je ramène mon coeur au trône    
-Nous nous prosternons    
-Je viens dans ta présence    
-Comme une biche    
-Shamma    
-    
+Au dessus des puissances  
+Nous élevons ton nom plus haut  
+Le ciel et la terre  
+Roi de mon salut  
+Nzambe monene  
+
 ## OFFRANDES        
-Je veux me réjouir    
-Ensemble louons    
-Moi je ne souffrirai jamais    
-    
+Ne me cherchez plus là-bas  
+J'ai vu sa bonté  
+Attention le feu de Dieu est déscendu  
+
 ## CLÔTURE    
-Ton nom est si merveilleux Jésus    
+Tu es Alpha et Oméga  
