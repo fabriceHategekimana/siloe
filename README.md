@@ -1,21 +1,22 @@
-Dimanche 14 juillet 2024  
+Dimanche 21 juillet 2024  
       
-## ENTRÉE        
-L'amour est une personne  
-Je veux m'enraciner  
-On m'a dit que tu guérissais  
-    
-## ADORATION        
-Au dessus des puissances  
-Nous élevons ton nom plus haut  
-Le ciel et la terre  
-Roi de mon salut  
-Nzambe monene  
+# ENTREE
+Tu m'as réveillé ce matin
+Je parlerai de ta bonté
+Même si le monde
 
-## OFFRANDES        
-Ne me cherchez plus là-bas  
-J'ai vu sa bonté  
-Attention le feu de Dieu est déscendu  
+# ADORATION
+Nous nous prosternons
+Le nom de Jésus
+Que ta présence en moi
+De gloire en gloire
+Fais-moi monter
 
-## CLÔTURE    
-Tu es Alpha et Oméga  
+# OFFRANDES
+Il est bon  de louer Dieu
+Si je rappelle
+La marche
+zambe oyo monene
+
+# CLÔTURE
+Non non non jamais ne passera
