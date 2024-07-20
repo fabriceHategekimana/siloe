@@ -1,22 +1,19 @@
-Dimanche 21 juillet 2024  
+Dimanche 28 juillet 2024  
       
-# ENTREE
-Tu m'as réveillé ce matin
-Je parlerai de ta bonté
-Même si le monde
-
+# ENTREE  
+Dan mon parcours   
+Tu es Saint  
+Que ma louange  
+  
 # ADORATION
-Nous nous prosternons
-Le nom de Jésus
-Que ta présence en moi
-De gloire en gloire
-Fais-moi monter
+Emmanuel, il s'appelle  
+Likolo na se  
+Abrite-moi  
+Dieu est fidèle  
+  
+# OFFRANDES  
+Comment ne pas te louer  
+Jehovah tu es élevé  
 
-# OFFRANDES
-Il est bon  de louer Dieu
-Si je rappelle
-La marche
-zambe oyo monene
-
-# CLÔTURE
-Non non non jamais ne passera
+# CLÔTURE   
+Alleluia amen  
