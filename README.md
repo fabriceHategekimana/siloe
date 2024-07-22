@@ -1,4 +1,4 @@
-Dimanche 28 juillet 2024  
+Dimanche 28 juillet 2024    
       
 # ENTREE  
 Dan mon parcours   
@@ -17,3 +17,4 @@ Jehovah tu es élevé
 
 # CLÔTURE   
 Alleluia amen  
+
