@@ -1,20 +1,20 @@
-Dimanche 28 juillet 2024    
+Dimanche 4 août 2024    
       
-# ENTREE  
-Dan mon parcours   
-Tu es Saint  
-Que ma louange  
-  
-# ADORATION
-Emmanuel, il s'appelle  
-Likolo na se  
-Abrite-moi  
-Dieu est fidèle  
-  
-# OFFRANDES  
-Comment ne pas te louer  
-Jehovah tu es élevé  
-
-# CLÔTURE   
+# ENTREE
 Alleluia amen  
+Jésus le roi des rois  
 
+# ADORATION
+Hosanna  
+De gloire en gloire    
+Fait-moi monter  
+Que ta présence en moi    
+Que tout les autres noms    
+
+# OFFRANDES
+Eh eh eh, mon Dieu mon roi    
+La nouvelle Jérusalem    
+Moi j'ai trouvé    
+
+# CLOTURE
+Tu es alpha et oméga    
