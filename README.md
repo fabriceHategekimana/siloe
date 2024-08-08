@@ -1,20 +1,21 @@
-Dimanche 4 août 2024    
+Dimanche 11 août 2024  
       
 # ENTREE
+Hosanna au plus haut  
+Alleluia, alleluia  
 Alleluia amen  
-Jésus le roi des rois  
 
 # ADORATION
-Hosanna  
-De gloire en gloire    
-Fait-moi monter  
-Que ta présence en moi    
-Que tout les autres noms    
+Tu es digne de gloire  
+Sainteté à ton nom  
+Sans pareil  
+Rien est égal  
+Yahwe se manifestera  
 
 # OFFRANDES
-Eh eh eh, mon Dieu mon roi    
-La nouvelle Jérusalem    
-Moi j'ai trouvé    
+Ne avons Jésus  
+Plus haut, plus haut  
+L'heure de la victoire  
 
 # CLOTURE
-Tu es alpha et oméga    
+Nous te disons merci  
