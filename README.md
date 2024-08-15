@@ -1,21 +1,22 @@
-Dimanche 11 août 2024  
+Dimanche 18 août 2024  
       
 # ENTREE
-Hosanna au plus haut  
-Alleluia, alleluia  
-Alleluia amen  
+L'amour est une personne  
+Je t'aime tu le sais  
 
 # ADORATION
-Tu es digne de gloire  
-Sainteté à ton nom  
-Sans pareil  
-Rien est égal  
-Yahwe se manifestera  
+Nous nous prosternons  
+Je ramène mon coeur  
+Parfum  
+Tu es yahwe  
+Shamma  
+Abrites-moi  
 
 # OFFRANDES
-Ne avons Jésus  
-Plus haut, plus haut  
-L'heure de la victoire  
+J'étais malade  
+Il est le même  
+Choisi Jésus aujourd'hui  
+C'est pourquoi  
 
 # CLOTURE
-Nous te disons merci  
+Mon seul ami  
