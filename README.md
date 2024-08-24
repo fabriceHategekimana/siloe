@@ -1,16 +1,15 @@
-Dimanche 18 août 2024  
+Dimanche 25 août 2024  
       
 # ENTREE
-L'amour est une personne  
-Je t'aime tu le sais  
+Je suis venu pour te louer  
+Je parlerai de ta bonté  
 
 # ADORATION
-Nous nous prosternons  
-Je ramène mon coeur  
-Parfum  
-Tu es yahwe  
-Shamma  
-Abrites-moi  
+À jamais il sera  
+Crucifié  
+À jamais  
+Tu viens du ciel  
+Ouvre les écluses des cieux  
 
 # OFFRANDES
 J'étais malade  
@@ -19,4 +18,4 @@ Choisi Jésus aujourd'hui
 C'est pourquoi  
 
 # CLOTURE
-Mon seul ami  
+L'Eternel est bon  
