@@ -1,21 +1,19 @@
-Dimanche 25 août 2024  
+Dimanche 1er septembre 2024  
       
 # ENTREE
-Je suis venu pour te louer  
-Je parlerai de ta bonté  
+Tu es saint  
+Que ma louange  
 
 # ADORATION
-À jamais il sera  
-Crucifié  
-À jamais  
-Tu viens du ciel  
-Ouvre les écluses des cieux  
+Tout genoux fléchissent  
+Prosternés adorons  
+Je viens dans ta présence  
+Tant que tu donnes un chant  
+Sa main nous touche  
 
 # OFFRANDES
-J'étais malade  
-Il est le même  
-Choisi Jésus aujourd'hui  
-C'est pourquoi  
+Assis sur ton trône sois loué  
+Hosann Alléluia  
 
 # CLOTURE
-L'Eternel est bon  
+Que taprésence en moi  
