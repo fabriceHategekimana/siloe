@@ -1,19 +1,20 @@
-Dimanche 1er septembre 2024  
+Dimanche 9 septembre 2024  
       
 # ENTREE
-Tu es saint  
-Que ma louange  
+Il est le même  
+Il est vivant  
 
 # ADORATION
-Tout genoux fléchissent  
-Prosternés adorons  
-Je viens dans ta présence  
-Tant que tu donnes un chant  
+Je laisse parler mon coeur  
 Sa main nous touche  
+Ouvre les écluses  
+Je me livre totalement  
+Kadosh  
 
 # OFFRANDES
-Assis sur ton trône sois loué  
-Hosann Alléluia  
+Nous te louons  
+Dieu va faire encore  
+La nouvelle Jérusalem  
 
 # CLOTURE
-Que taprésence en moi  
+Même si les Océans   
