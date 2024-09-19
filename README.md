@@ -1,20 +1,17 @@
 Dimanche 9 septembre 2024  
       
 # ENTREE
-Il est le même  
-Il est vivant  
+Tu es plus grand que ce que l'on dit  
 
 # ADORATION
-Je laisse parler mon coeur  
-Sa main nous touche  
-Ouvre les écluses  
-Je me livre totalement  
-Kadosh  
+Ce que nous voulons c'est toi  
+Jésus tu es élevé  
+Yeshua  
+Yahwe se manifestera  
 
 # OFFRANDES
-Nous te louons  
-Dieu va faire encore  
-La nouvelle Jérusalem  
+Adonaï
 
 # CLOTURE
-Même si les Océans   
+Comment ne pas te louer 
+ 
