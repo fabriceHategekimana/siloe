@@ -1,20 +1,21 @@
 Dimanche 22 septembre 2024  
   
 ## ENTRÉE  
-Je veux m'enraciner en toi  
-Dans mon parcours sur la terre  
-Ne me laisse pas tomber  
-  
+Dans mon parcours sur la terre 
+Que ma louange monte vers toi
+ 
 ## ADORATION  
-Plus près de toi seigneur  
-Seigneur prend soin de moi  
-Abrite-moi  
-Jésus tu as les parole de la vie  
+Que tes vives eau
+Je lève mes mains vers le ciel
+Abrites-moi
+Que ta présence en moi
+De gloire en gloire
   
 ## OFFRANDES  
-Moi je ne souffrirai jamais  
-C'est pourquoi  
-Commando  
+Il est bon de louer
+La joie du Seigneur
+Rabbi ne change pas 
+Rabbi manifeste toi
   
 ## CLÔTURE  
 Merci merci Jésus  
