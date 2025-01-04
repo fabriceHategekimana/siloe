@@ -1,34 +1,22 @@
 # 7HDSP  
-   
-## ENTRÉE  
-Je parlerai de ta bonté [lien](https://www.youtube.com/watch?v=5zno_crO7MU)  
-Il a reçu le nom [lien](https://www.youtube.com/watch?v=A_LxbSPeIc8)  
-Alléluia Hosanna    
-   
-## ADORATION  
-### PARTIE 1  
-Main levées [lien](https://www.youtube.com/watch?v=Qk0VtrJjicM)  
-Que tout les autres noms disparaissent   
-  
-### PARTIE 2  
-Jésus nous t'élevons plus haut (6:37-10:25) [lien](https://www.youtube.com/watch?v=dPSYTOJh9Dc)  
-Prends la place du Roi   
-Viens Jésus prends la place du Roi (Jésus nous te couronons) [](https://www.youtube.com/watch?v=xeNhy4B_-N4)  
-Jésus Jésus Jésus tu es élevé [lien](https://www.youtube.com/watch?v=BMeMd6UMsME)  
-  
-### PARTIE 3  
-Ni par force [lien](https://www.youtube.com/watch?v=1JHn7bAqHJg)  
-Oins moi [lien](https://www.youtube.com/watch?v=Hrno89TF57Y)  
-Que ton onction [lien](https://www.youtube.com/watch?v=_O8psLIwTLw)  
-  
-### PARTIE 4  
-Tu sais satisfaire [lien](https://www.youtube.com/watch?v=IPQr_9QVGf0)  
-Eh ya ya [lien](https://www.youtube.com/watch?v=BMeMd6UMsME)  
-eh eh eh ah ah ah [lien](https://www.youtube.com/watch?v=-z8s_GgDs3A)  
-Intensifie [lien](https://www.youtube.com/watch?v=AuNjc_ZvY7U)  
-  
-## LOUANGE
-Venez voir (4:00-6:25) [lien](https://www.youtube.com/watch?v=piWo6eHqpXY)
-Adonaï
 
+## [Planning](planning)
 
+## PROGRAMME INTERMÉDIAIRE 
+
+https://www.youtube.com/watch?v=imB0LsJ4rUY
+Jésus tu es tellement merveilleux
+Je parlerai de ta bonté (Quand je pense à toutes tes bontés)
+Alleluia amen
+
+---
+
+Main levée (que tout les autres noms disparaissent) (6:37-10:25) [lien](https://www.youtube.com/watch?v=Qk0VtrJjicM)  [paroles](Mains_levees)  
+Hosanna dans les lieux très hauts [lien](https://www.youtube.com/watch?v=XMqPYMSRj8M) [paroles](Hosanna_dans_les_lieux_tres_haut)  
+À toi la gloire (Jésus nous t'élevons plus haut) [paroles](A_toi_la_gloire)
+
+Dieu tu es tout pour moi [lien](https://www.youtube.com/watch?v=HQFSibzIxEc) [paroles](Dieu_tu_es_tout_pour_moi)  
+Mon âme béni l'Eternel [lien](https://www.youtube.com/watch?v=1ieckehNEO8) [paroles](Mon_ame_beni_l_Eternel)
+   
+# [old](old)
+   
