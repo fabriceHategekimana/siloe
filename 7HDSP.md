@@ -4,10 +4,10 @@
 
 ## PROGRAMME INTERMÉDIAIRE 
 
-https://www.youtube.com/watch?v=imB0LsJ4rUY
-Jésus tu es tellement merveilleux
-Je parlerai de ta bonté (Quand je pense à toutes tes bontés)
-Alleluia amen
+https://www.youtube.com/watch?v=imB0LsJ4rUY  
+Jésus tu es tellement merveilleux  
+Je parlerai de ta bonté (Quand je pense à toutes tes bontés)  
+Alleluia amen  
 
 ---
 
