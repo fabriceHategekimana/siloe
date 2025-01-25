@@ -1,9 +1,8 @@
 # Hosanna dans les lieux très hauts
 
-HOSANNA, 
-DANS LES LIEUX TRÈS HAUTS 
-QUE LE ROI SOIT ÉLEVÉ 
-HOSANNA (x4)
+Hosanna, 
+dans les lieux très hauts 
+que le roi soit élevé 
+Hosanna (x4)
 
-
-HOSANNA
+Hosanna

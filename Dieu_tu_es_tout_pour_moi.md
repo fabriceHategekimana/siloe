@@ -10,7 +10,5 @@ Je t’appelle Nissi ,  Tu es Ma bannière
 Je t’appelle Rapha , Ma guérison 
 Dieu, Tu es tout pour moi 
 
-Y’oza  nionso na nga ( Tu es tout pour moi ) 
-
 Seigneur Tu es tout pour moi
 Jésus Tu es tout pour moi
