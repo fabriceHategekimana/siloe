@@ -1,6 +1,6 @@
 # ENTREE
-Je parlerai de ta bonté
-Dans les parvis du Dieu vivant
+Je parlerai de ta bonté [lien](https://www.youtube.com/watch?v=GMIw-OdOBtY)    
+Dans les parvis du Dieu vivant [lien](https://www.youtube.com/watch?v=GVcn_D5dsLI)  
 
 # ADORATION
 Main levées Que tout les autres noms disparaissent [lien](https://www.youtube.com/watch?v=Qk0VtrJjicM)  
@@ -9,7 +9,7 @@ Prends la place du Roi [lien](https://www.youtube.com/watch?v=xeNhy4B_-N4)
 Viens Jésus prends la place du Roi (Jésus nous te couronons)  
 Jésus tu es élevé [lien](https://www.youtube.com/watch?v=JlbKnzVwmY4)  
 # OFFRANDES
-Sembola loboko [lien]()
+Sembola loboko [lien](https://www.youtube.com/watch?v=ajtdklDdOpo)
 Amina lele [lien](https://www.youtube.com/watch?v=k289Tnf782I)
 Grand Dieu [lien](https://www.youtube.com/watch?v=4_y5MAGe7Fo)  
 
