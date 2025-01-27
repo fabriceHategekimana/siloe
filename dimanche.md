@@ -8,6 +8,7 @@ Jésus nous t'élevons plus haut [lien](https://www.youtube.com/watch?v=dPSYTOJh
 Prends la place du Roi [lien](https://www.youtube.com/watch?v=xeNhy4B_-N4)  
 Viens Jésus prends la place du Roi (Jésus nous te couronons)  
 Jésus tu es élevé [lien](https://www.youtube.com/watch?v=JlbKnzVwmY4)  
+
 # OFFRANDES
 Sembola loboko [lien](https://www.youtube.com/watch?v=ajtdklDdOpo)
 Amina lele [lien](https://www.youtube.com/watch?v=k289Tnf782I)
