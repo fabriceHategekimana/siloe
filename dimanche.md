@@ -10,9 +10,9 @@ Viens Jésus prends la place du Roi (Jésus nous te couronons)
 Jésus tu es élevé [lien](https://www.youtube.com/watch?v=JlbKnzVwmY4)  
 
 # OFFRANDES
-Sembola loboko [lien](https://www.youtube.com/watch?v=ajtdklDdOpo)
-Amina lele [lien](https://www.youtube.com/watch?v=k289Tnf782I)
-Grand Dieu [lien](https://www.youtube.com/watch?v=4_y5MAGe7Fo)  
+Sembola loboko [lien](https://www.youtube.com/watch?v=ajtdklDdOpo)  
+Amina lele [lien](https://www.youtube.com/watch?v=k289Tnf782I)  
+Grand Dieu [lien](https://www.youtube.com/watch?v=4_y5MAGe7Fo)    
 
 # CLÔTURE
 Comment ne pas te louer 
