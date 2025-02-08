@@ -5,11 +5,11 @@ Il a reçu le nom
 Alleluia Hosanna  
 
 ## ADORATION  
-Tu es Alpha et Omega  
-Parfum  
-Reçois de moi  
-Reçois l'adoration  
-Emmanuel (Lord Lombo)  
+Hosanna  
+De gloire en gloire    
+Fait-moi monter  
+Que ta présence en moi    
+Que tout les autres noms    
 
 ## OFFRANDES  
 Nous avons Jésus  
