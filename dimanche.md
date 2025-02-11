@@ -5,17 +5,17 @@ Il a reçu le nom
 Alleluia Hosanna  
 
 ## ADORATION  
-Hosanna  
-De gloire en gloire    
-Fait-moi monter  
-Que ta présence en moi    
-Que tout les autres noms    
+Tu es holy ghost  
+Ouvre les écluse des cieux  
+Ça main nous touche  
+Je_reconnais  
+Car il est glorieux (Gloire)  
 
 ## OFFRANDES  
-Nous avons Jésus  
-Plus haut plus haut  
-Moi j'ai trouvé Jésus Christ  
+[lien](https://www.youtube.com/watch?v=BI0puXk0N2Y)    
+Ensemble louons le Seigneur  
+Rabbi ne change pas  
+Si je rappel à Dieu  
 
 ## CLÔTURE  
-Dieu est fidèle  
-
+Voila
