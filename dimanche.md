@@ -1,21 +1,21 @@
 # Dimanche 16 février 2025
 
 ## ENTREE  
-Il a reçu le nom  
-Alleluia Hosanna  
+Je veux être comme Jésus  
+Même si le monde  
+Kumama  
 
 ## ADORATION  
-[Tu es holy ghost](https://www.youtube.com/live/e_9KON-ntAc) (24:05-28:25)  
-Ça main nous touche  
-Je reconnais  
-Car il est glorieux (Gloire)  
-Ouvre les écluse des cieux  
+Assis sur le trône  
+Alleluia eh  
+
+Que ta pluie tombe  
+Yahwe se manifestera  
+Quand il descend  
 
 ## OFFRANDES  
-[lien medley](https://www.youtube.com/watch?v=BI0puXk0N2Y)    
-Ensemble louons le Seigneur  
-Rabbi ne change pas  
-Si je rappel à Dieu  
+Je veux me réjouir  
+Comment ne pas te louer  
 
 ## CLÔTURE  
-Voila
+Tu es alpha et omega  
