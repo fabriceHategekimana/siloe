@@ -1,21 +1,20 @@
-# Dimanche 16 février 2025
+# Dimanche 2 février 2025
 
-## ENTREE  
-Je veux être comme Jésus  
-Même si le monde  
-Kumama  
+## ENTRÉE
+L'amour est une personne  
+Amoureux   
+Je veux m'enraciner  
+Il n'y a que toi  
 
-## ADORATION  
-Assis sur le trône  
-Alleluia eh  
-
-Que ta pluie tombe  
+## ADORATION
+Emmanuel est là  
+Il est parmi nous  
+Yeshua  
 Yahwe se manifestera  
-Quand il descend  
+Déborde encore 
 
-## OFFRANDES  
-Je veux me réjouir  
-Comment ne pas te louer  
+## OFFRANDES
+Adonaï 
 
-## CLÔTURE  
-Tu es alpha et omega  
+## CLÔTURE
+Alleluia amen
