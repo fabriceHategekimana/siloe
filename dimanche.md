@@ -1,4 +1,4 @@
-# Dimanche 2 février 2025
+# Dimanche 9 février 2025
 
 ## ENTRÉE
 L'amour est une personne  
@@ -7,14 +7,15 @@ Je veux m'enraciner
 Il n'y a que toi  
 
 ## ADORATION
-Emmanuel est là  
-Il est parmi nous  
-Yeshua  
-Yahwe se manifestera  
-Déborde encore 
+De gloire en gloire  
+Fait-moi monter  
+Que ta présence en moi  
+Que tout les autres noms  
+Alleluia eh  
 
 ## OFFRANDES
-Adonaï 
+Amina le le  
+Grand Dieu  
 
 ## CLÔTURE
-Alleluia amen
+L'Eternel est bon  
