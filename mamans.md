@@ -1,5 +1,7 @@
 ENTREE
-
+Reçois ma louange  
+Oh mon Dieu  
+Tu es le papa le plus responsable  
 
 ADORATION
 Emmanuel est là  
@@ -17,4 +19,4 @@ Ah Yaya Jésus est bon
 Le feu est allumé
 
 CLÔTURE
-
+Je parlerai
