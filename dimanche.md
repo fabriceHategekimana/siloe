@@ -1,21 +1,21 @@
 # Dimanche 16 mars 2025
 
-## ENTRÉE
-L'amour est une personne  
-Amoureux   
-Je veux m'enraciner  
-Il n'y a que toi  
+# ENTREE
+Hosanna au plus haut  
+Alleluia, alleluia  
+Alleluia amen  
 
-## ADORATION
-De gloire en gloire  
-Fait-moi monter  
-Que ta présence en moi  
-Que tout les autres noms  
-Alleluia eh  
+# ADORATION
+Tu es digne de gloire  
+Sainteté à ton nom  
+Sans pareil  
+Rien est égal  
+Yahwe se manifestera  
 
-## OFFRANDES
-Amina le le  
-Grand Dieu  
+# OFFRANDES
+Ne avons Jésus  
+Plus haut, plus haut  
+L'heure de la victoire  
 
-## CLÔTURE
-L'Eternel est bon  
+# CLOTURE
+Nous te disons merci  
