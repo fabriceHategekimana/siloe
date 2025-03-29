@@ -1,21 +1,21 @@
-# Dimanche 16 mars 2025
+# Dimanche 30 mars 2025
 
 # ENTREE
-Hosanna au plus haut  
-Alleluia, alleluia  
-Alleluia amen  
+Il n'y a que toi  
+Tu es mon Dieu  
+Mon Dieu mon Roi que puis-je  
+Eh Yahwe kumama  
+Eh Yahwe kumama papa  
 
 # ADORATION
-Tu es digne de gloire  
-Sainteté à ton nom  
-Sans pareil  
-Rien est égal  
-Yahwe se manifestera  
+Roi de mon salut  
+Nzambe monene  
+Jésus tu es le plus beau  
+
+Le Roi fait son entrée  
 
 # OFFRANDES
-Ne avons Jésus  
-Plus haut, plus haut  
-L'heure de la victoire  
+Fanda na yo  
 
 # CLOTURE
-Nous te disons merci  
+Tu es le papa le plus responsable  
