@@ -1,21 +1,19 @@
 # Dimanche 30 mars 2025
 
 # ENTREE
-Il n'y a que toi  
-Tu es mon Dieu  
-Mon Dieu mon Roi que puis-je  
-Eh Yahwe kumama  
-Eh Yahwe kumama papa  
+
 
 # ADORATION
-Roi de mon salut  
-Nzambe monene  
-Jésus tu es le plus beau  
-
-Le Roi fait son entrée  
+Tu es digne de Gloire
+Gloire à l'Agneau  
+Shekina la gloire de Dieu est là (Agape)    
+https://www.youtube.com/watch?v=XRsflUAyzfk  
 
 # OFFRANDES
-Fanda na yo  
+https://www.youtube.com/watch?v=BI0puXk0N2Y  
+Ensemble louons le Seigneur  
+Rabbi ne change pas  
+Rabbi manifeste toi  
 
 # CLOTURE
-Tu es le papa le plus responsable  
+Dieu est bon  
