@@ -1,22 +1,21 @@
 # Dimanche 20 avril 2025
 
 # ENTREE
-Mon coeur me pousse à dire  
+Je parlerai de ta bonté  
+Alleluia amen  
 
 # ADORATION
-Au dessus de tout  
-Roi de mon Salut  
-Chantons alleluia l'agneau sur le trône  
-Dieu est fidèle  
-Jésus est ma résurection  
+Mains levées  
+Que tout les autres noms disparaissent  
+Jésus nous t'élevons plus haut  
+Prend la place  
+Tu viens du ciel  
+Je veux exprimer  
 
 # OFFRANDES
-Il m'a sauvé  
-Jésus tu es le plus grand  
-Là-haut mon nom est inscrit  
-Nous avons Jésus  
+J'étais malade  
+Il est le même  
+Je veux chanter pour Jésus  
 
 # CLOTURE
-Yeshua  
-
-
+Alleluia amen  
