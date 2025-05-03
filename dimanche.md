@@ -1,21 +1,20 @@
-# Dimanche 20 avril 2025
+# Dimanche 27 avril 2025
 
 # ENTREE
-Je parlerai de ta bonté  
-Alleluia amen  
+Je veux m'enraciner en toi  
+Jésus tu as les paroles de la vie  
+Je t'aime tu le sais  
 
 # ADORATION
-Mains levées  
-Que tout les autres noms disparaissent  
-Jésus nous t'élevons plus haut  
-Prend la place  
-Tu viens du ciel  
-Je veux exprimer  
+Jésus tu es élevé au dessus  
+Gloire  
+Abrites moi  
+Dieu est fidèle  
 
 # OFFRANDES
-J'étais malade  
-Il est le même  
-Je veux chanter pour Jésus  
+Ensemble louons le Seigneur   
+Rabbi ne change pas  
+Si je rappelle à Dieu  
 
 # CLOTURE
-Alleluia amen  
+À toi la gloire  
