@@ -1,20 +1,20 @@
-# Dimanche 27 avril 2025
+# Dimanche 11 mai 2025
 
-# ENTREE
-Je veux m'enraciner en toi  
-Jésus tu as les paroles de la vie  
-Je t'aime tu le sais  
+## ENTREE
+Il est vivant en Jésus   
+Je parlerai de ta bonté  
+Alleluia amen  
 
-# ADORATION
-Jésus tu es élevé au dessus  
-Gloire  
-Abrites moi  
-Dieu est fidèle  
+## ADORATION
+Jésus tu es élevé  
+Nous nous prosternons  
+Je viens dans ta présence    
+Tant que tu donnes un chant    
+Emmanuel est là  
 
-# OFFRANDES
-Ensemble louons le Seigneur   
+## OFFRANDES
+Ne me cherchez plus là-bas  
+Là haut mon nom est inscrit  
 Rabbi ne change pas  
-Si je rappelle à Dieu  
 
-# CLOTURE
-À toi la gloire  
+## CLÔTURE
