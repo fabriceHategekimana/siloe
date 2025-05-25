@@ -1,8 +1,8 @@
 # Dimanche 25 mai 2025
 
 ## ENTREE 
-Emmanuel toujours présent à ma cause
-Je parlerai de ta bonté
+Emmanuel toujours présent à ma cause  
+Je parlerai de ta bonté  
 Alleluia amen  
 
 ## ADORATION
