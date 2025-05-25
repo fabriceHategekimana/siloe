@@ -1,22 +1,22 @@
-# Dimanche 18 mai 2025
+# Dimanche 25 mai 2025
 
 ## ENTREE 
-Reçois ma louange    
-Oh mon Dieu  
-Tu es le papa le plus responsable  
+Emmanuel toujours présent à ma cause
+Je parlerai de ta bonté
+Alleluia amen  
 
 ## ADORATION
-Je lève mes main vers le ciel  
-Jésus nous t'élevons plus haut (6:37-10:25) [lien](https://www.youtube.com/watch?v=dPSYTOJh9Dc)  
-Prends la place du Roi   
-Viens Jésus prends la place du Roi (Jésus nous te couronons) [](https://www.youtube.com/watch?v=xeNhy4B_-N4)    
-Emmanuel est là  
+Je ramène mon coeur au trône    
+Nous nous prosternons    
+Je viens dans ta présence    
+T'adorer  
+Oui je le vois  
 
 ## OFFRANDES
-Ne me cherchez plus là-bas  
-Là haut mon nom est inscrit  
-La nouvelle Jérusalem  
-Rabbi ne change pas  
+Il est le même   
+Choisit Jésus aujourd'hui  
+Plus haut plus haut  
+Commando  
 
 ## CLÔTURE
-Je parlerai de ta bonté  
+Reçois ma louange  
