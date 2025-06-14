@@ -7,8 +7,8 @@ Il est vivant
 Alleluia Hosanna    
     
 ## ADORATION        
-Je ramène mon coeur au trône    
 Nous nous prosternons    
+Je ramène mon coeur au trône    
 Je viens dans ta présence    
 Comme une biche    
 Shamma    

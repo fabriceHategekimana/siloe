@@ -67,7 +67,7 @@ Vous pouvez aussi choisir de participer à la louange ou à l'offrande en collab
   [17h30-18h00], [Louange],
   [18h00-18h30], [Adoration partie 1],
   [18h30-19h00], [Adoration partie 2],
-  [19h00-19h30], [Enseignement],
+  [19h00-19h30], [Prédication],
   [19h30-20h00], [Adoration partie 3],
   [20h00-20h30], [Adoration partie 4],
   [20h30-21h00], [Offrandes, remerciement, communication et clôtures]
