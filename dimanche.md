@@ -9,10 +9,10 @@ Alleluia Hosanna
 ## ADORATION        
 Nous nous prosternons    
 Je ramène mon coeur au trône    
-Plus près de toi
-Je veux n'être qu'a toi (reçois de moi)
-Reçois l'adoration
-(Emmanuel est là)
+Plus près de toi  
+Je veux n'être qu'a toi (reçois de moi)  
+Reçois l'adoration  
+(Emmanuel est là)  
     
 ## OFFRANDES        
 Je veux me réjouir    
