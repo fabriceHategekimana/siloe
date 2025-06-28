@@ -1,23 +1,23 @@
-# Dimanche 15 juin 2025
+# Dimanche 29 juin 2025
 
 ## ENTRÉE        
-Nous te disons merci Seigneur    
-Oh mon Dieu    
-Il est vivant    
-Alleluia Hosanna    
-    
+Ton nom est si merveilleux
+Jésus le roi des rois
+Mon Dieu mon roi que puis-je
+
 ## ADORATION        
 Nous nous prosternons    
-Je ramène mon coeur au trône    
-Plus près de toi  
-Je veux n'être qu'a toi (reçois de moi)  
-Reçois l'adoration  
-(Emmanuel est là)  
+Roi de mon Salut
+Prends la place du Roi
+
+## PRIÈRE
+Je veux prier
     
 ## OFFRANDES        
-Je veux me réjouir    
-Ensemble louons    
-Moi je ne souffrirai jamais    
-    
+Grand Dieu 
+J'ai un grand Dieu
+La nouvelle Jérusalem
+	
 ## CLÔTURE    
-Ton nom est si merveilleux Jésus    
+Alleluia amen
+
