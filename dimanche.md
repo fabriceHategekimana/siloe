@@ -1,23 +1,26 @@
 # Dimanche 29 juin 2025
 
 ## ENTRÉE        
-Ton nom est si merveilleux
-Jésus le roi des rois
-Mon Dieu mon roi que puis-je
+Exaltez l'Eternel  
+Jésus tu es le plus  
 
 ## ADORATION        
-Nous nous prosternons    
-Roi de mon Salut
-Prends la place du Roi
+Eliya
+Roi de mon salut
+
+Conduit-moi dans ton intimité  
+J'irai là haut  
+Alors à qui  
 
 ## PRIÈRE
-Je veux prier
-    
-## OFFRANDES        
-Grand Dieu 
-J'ai un grand Dieu
-La nouvelle Jérusalem
-	
-## CLÔTURE    
-Alleluia amen
+Tu sais satisfaire  
 
+## OFFRANDES        
+Peuple de Dieu loué  
+
+Ne me cherchez plus là-bas  
+J'ai vu sa bonté  
+Attention le feu de Dieu  
+
+## CLÔTURE    
+Jésus tu es le plus beau nom
