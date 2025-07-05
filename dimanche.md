@@ -5,7 +5,7 @@ Exaltez l'Eternel
 Jésus tu es le plus  
 
 ## ADORATION        
-Eliya
+Eliya  
 Roi de mon salut
 
 Conduit-moi dans ton intimité  
