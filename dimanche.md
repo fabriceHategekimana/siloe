@@ -1,4 +1,4 @@
-# Dimanche 29 juin 2025
+# Dimanche 6 juin 2025
 
 ## ENTRÉE        
 Exaltez l'Eternel  
