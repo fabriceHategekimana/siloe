@@ -1,26 +1,27 @@
-# Dimanche 6 juin 2025
+# Dimanche 13 juin 2025
 
 ## ENTRÉE        
-Exaltez l'Eternel  
-Jésus tu es le plus  
+Nous te disons merci  
+Oh mon Dieu  
+Il est vivant Jésus  
 
 ## ADORATION        
-Eliya  
-Roi de mon salut
+Yaweh tu es digne d'être adoré  
+Viens Jésus prend la place du Roi  
+Prend la place du Roi dans nos vies  
 
-Conduit-moi dans ton intimité  
-J'irai là haut  
-Alors à qui  
+Gloire  
+Jésus tu es élevés  
+(Jésus nous t'élevons plus haut)  
 
 ## PRIÈRE
 Tu sais satisfaire  
 
 ## OFFRANDES        
-Peuple de Dieu loué  
-
-Ne me cherchez plus là-bas  
-J'ai vu sa bonté  
-Attention le feu de Dieu  
+Ensemble louons  
+Nous te louons  
+Dieu va faire encore  
+La nouvelle Jérusalem  
 
 ## CLÔTURE    
-Jésus tu es le plus beau nom
+Tu es Alpha et Oméga  
