@@ -1,27 +1,21 @@
-# Dimanche 13 juin 2025
+# Dimanche 26 Juillet 2025
 
 ## ENTRÉE        
-Nous te disons merci  
-Oh mon Dieu  
-Il est vivant Jésus  
+Comment ne pas te louer  
 
 ## ADORATION        
-Yaweh tu es digne d'être adoré  
-Viens Jésus prend la place du Roi  
-Prend la place du Roi dans nos vies  
-
-Gloire  
-Jésus tu es élevés  
-(Jésus nous t'élevons plus haut)  
+Esprit de Dieu règne
+Yeshua  
+Yeshua  
+Oh ce nom si merveilleux  
 
 ## PRIÈRE
-Tu sais satisfaire  
+Tu m'emènes  
 
 ## OFFRANDES        
-Ensemble louons  
-Nous te louons  
-Dieu va faire encore  
-La nouvelle Jérusalem  
+Rabbi ne change pas  
+Si je rappelle  
+La marche  
 
 ## CLÔTURE    
-Tu es Alpha et Oméga  
+Chercher d'abord  
