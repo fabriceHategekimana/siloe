@@ -1,21 +1,26 @@
-# Dimanche 26 Juillet 2025
+# Dimanche 3 Août 2025 
 
 ## ENTRÉE        
-Comment ne pas te louer  
+Je suis venu pour te louer  
+Je parlerai de ta bonté  
+Le Roi des Roi c'est Jésus  
+Alleluia Hozanna  
 
 ## ADORATION        
-Esprit de Dieu règne
-Yeshua  
-Yeshua  
-Oh ce nom si merveilleux  
+Montre-moi la voie  
+Dans tes bras d'amour  
+
+Plus près de toi  
+Abrites-moi  
+Alors à qui  
 
 ## PRIÈRE
 Tu m'emènes  
 
 ## OFFRANDES        
-Rabbi ne change pas  
-Si je rappelle  
-La marche  
+Je veux me réjouir    
+Ensemble louons    
+Moi je ne souffrirai jamais    
 
 ## CLÔTURE    
-Chercher d'abord  
+Merci merci Jésus  
