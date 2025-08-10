@@ -1,26 +1,20 @@
-# Dimanche 3 Août 2025 
+# Dimanche 10 Août 2025 
 
-## ENTRÉE        
-Je suis venu pour te louer  
-Je parlerai de ta bonté  
-Le Roi des Roi c'est Jésus  
-Alleluia Hozanna  
+## ENTREE  
+Il a reçu le nom  
+Alleluia Hosanna  
 
-## ADORATION        
-Montre-moi la voie  
-Dans tes bras d'amour  
+## ADORATION  
+Tu es Alpha et Omega  
+Parfum  
+Reçois de moi  
+Reçois l'adoration  
+Emmanuel (Lord Lombo)  
 
-Plus près de toi  
-Abrites-moi  
-Alors à qui  
+## OFFRANDES  
+Nous avons Jésus  
+Plus haut plus haut  
+Moi j'ai trouvé Jésus Christ  
 
-## PRIÈRE
-Tu m'emènes  
-
-## OFFRANDES        
-Je veux me réjouir    
-Ensemble louons    
-Moi je ne souffrirai jamais    
-
-## CLÔTURE    
-Merci merci Jésus  
+## CLÔTURE  
+Dieu est fidèle  
