@@ -1,20 +1,20 @@
-# Dimanche 10 Août 2025 
+# Dimanche 17 Août 2025 
 
 ## ENTREE  
-Il a reçu le nom  
-Alleluia Hosanna  
+On m'a dit Seigneur  
+Jehova eh  
+Moi j'ai trouvé Jésus Christ dans ma vie  
 
 ## ADORATION  
-Tu es Alpha et Omega  
-Parfum  
-Reçois de moi  
-Reçois l'adoration  
-Emmanuel (Lord Lombo)  
+Nous nous prosternons  
+Je ramène mon coeur  
+Emmanuel est là  
+Jésus tu es élevé  
+Ici et maintenant  
 
 ## OFFRANDES  
-Nous avons Jésus  
-Plus haut plus haut  
-Moi j'ai trouvé Jésus Christ  
+Dieu va faire encore  
+Je chanterai  
 
 ## CLÔTURE  
-Dieu est fidèle  
+Reçois ma louange  
