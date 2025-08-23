@@ -1,20 +1,20 @@
-# Dimanche 17 Août 2025 
+# Dimanche 24 Août 2025 
 
 ## ENTREE  
-On m'a dit Seigneur  
-Jehova eh  
-Moi j'ai trouvé Jésus Christ dans ma vie  
+Il n'y a que toi
+Je t'aime tu le sais / Amoureuse
+Confident  
+Jésus tu as les paroles  
 
 ## ADORATION  
-Nous nous prosternons  
-Je ramène mon coeur  
-Emmanuel est là  
-Jésus tu es élevé  
-Ici et maintenant  
+Tu es Yaweh  
+Ce que nous voulons c'est toi  
+Le roi fait son entré  
+Je veux prier  
 
 ## OFFRANDES  
-Dieu va faire encore  
-Je chanterai  
+Jésus tu es le plus grand  
+Moi j'ai trouvé Jésus Christ dans ma vie  
 
 ## CLÔTURE  
 Reçois ma louange  
