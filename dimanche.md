@@ -1,20 +1,21 @@
-# Dimanche 24 Août 2025 
+# Dimanche 30 Août 2025 
 
 ## ENTREE  
-Il n'y a que toi
-Je t'aime tu le sais / Amoureuse
-Confident  
-Jésus tu as les paroles  
+Reçois ma louange [lien](https://www.youtube.com/watch?v=GoPcIEqKYTw&list=RDGoPcIEqKYTw&start_radio=1&t=73s)  
+Je suis venu pour te louer [medley](https://www.youtube.com/watch?v=GTPNB7qrbaQ)  
+Je parlerai de ta bonté  
+Le Roi des rois  
 
 ## ADORATION  
-Tu es Yaweh  
-Ce que nous voulons c'est toi  
-Le roi fait son entré  
-Je veux prier  
+Dieu est fidèle  
+[Fidèle fidèle](https://www.youtube.com/watch?v=ja3jeEj-c1Y&list=RDja3jeEj-c1Y&start_radio=1)
+Gloire  
+Jésus tu es élevé  
+J'irai là-bas  
 
 ## OFFRANDES  
-Jésus tu es le plus grand  
-Moi j'ai trouvé Jésus Christ dans ma vie  
+Yaya Yesu  
+Venez voir  
 
 ## CLÔTURE  
-Reçois ma louange  
+L'Eternel est bon  
