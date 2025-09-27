@@ -1,21 +1,21 @@
-# Dimanche 30 Août 2025 
+# Dimanche 28 Septembre 2025 
 
 ## ENTREE  
-Reçois ma louange [lien](https://www.youtube.com/watch?v=GoPcIEqKYTw&list=RDGoPcIEqKYTw&start_radio=1&t=73s)  **(Fa)**  
-Je suis venu pour te louer [medley](https://www.youtube.com/watch?v=GTPNB7qrbaQ) **(Ré)**
 Je parlerai de ta bonté  
-Le Roi des rois  
+Alleluia, Gloire au Seigneur Jésus Christ  
+Alleluia amen  
 
 ## ADORATION (La)
-Dieu est fidèle  
-[Fidèle fidèle](https://www.youtube.com/watch?v=ja3jeEj-c1Y&list=RDja3jeEj-c1Y&start_radio=1)
-Gloire  
+Tu viens du ciel  
 Jésus tu es élevé  
-J'irai là-bas  
+Hosanna  
+Jésus nous t'élevons plus haut  
 
 ## OFFRANDES  
-Yaya Yesu **(Ré)**  
-Venez voir **(Ré)**  
+J'étais malade  
+Il est le même  
+Choisis Jésus aujourd'hui  
+Je veux chanter pour Jésus  
 
 ## CLÔTURE  
-L'Eternel est bon **Sol**  
+Dieu est fidèle  

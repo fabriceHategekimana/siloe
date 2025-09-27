@@ -2,7 +2,7 @@ Dimanche
 
 # ENTREE
 Venez chantons
-Je veu me réjouire Do
+Je veux me réjouire Do
 
 # ADORATION
 Combien Dieu est grand Fa

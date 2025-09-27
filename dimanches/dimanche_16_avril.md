@@ -14,7 +14,7 @@ Ce nom est si merveilleux [lien](https://www.youtube.com/watch?v=CxtgN-ncz80&t=4
 Le nom de Jésus [lien](https://www.youtube.com/watch?v=JL9ikMmRNW8)
 
 # OFFRANDES
-La joie du Seigneur [lien]()
+La joie du Seigneur
 Venez voir ce que Dieu a fait [lien](https://www.youtube.com/watch?v=Cep-14vWyIs)
 
 # CLOTURE
