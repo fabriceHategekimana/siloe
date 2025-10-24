@@ -1,21 +1,20 @@
-# Dimanche 28 Septembre 2025 
+# Dimanche 23 octobre 2025 
 
 ## ENTREE  
-Je parlerai de ta bonté  
-Alleluia, Gloire au Seigneur Jésus Christ  
 Alleluia amen  
+Jésus le roi des rois  
 
 ## ADORATION (La)
-Tu viens du ciel  
+Jésus tu es le plus beau nom de tous  
+À jamais il sera (les cieux proclament)  
+Mains levées  
 Jésus tu es élevé  
-Hosanna  
-Jésus nous t'élevons plus haut  
+Saint saint saint oh Eternel  
 
 ## OFFRANDES  
-J'étais malade  
-Il est le même  
-Choisis Jésus aujourd'hui  
-Je veux chanter pour Jésus  
+Victoire alleluia  
+Il est bon  
+Qui est bon comme toi  
 
 ## CLÔTURE  
-Dieu est fidèle  
+J'irai là-bas
